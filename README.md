@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on a Startuup
+🔭 I’m currently working on a Startup
 
 
 ## 🌐 Socials:

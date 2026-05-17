@@ -4,7 +4,7 @@
 
 I started programming at the age of **13**, beginning with small experiments like simple calculators and exploring different ideas. About two years later, I founded my own small **business**, which ran successfully for roughly **two years** and gave me valuable real‑world experience.
 
-Now in **2025**, programming is still my biggest passion. I enjoy learning new technologies, building projects, and constantly improving my skills. My goal is to turn this passion into a **professional career** and work as a developer in the future 🚀
+Now in **2026**, programming is still my biggest passion. I enjoy learning new technologies, building projects, and constantly improving my skills. My goal is to turn this passion into a **professional career** and work as a developer in the future 🚀
 
 ---
 
